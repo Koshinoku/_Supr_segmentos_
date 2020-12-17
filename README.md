@@ -1,0 +1,1 @@
+# _Supr_segmentos_
